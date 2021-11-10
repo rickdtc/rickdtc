@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @rickdtc, I dont fetishize lesbians
+- 👋 Hi, I’m @rickdtc
 
 <!---
 rickdtc/rickdtc is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
