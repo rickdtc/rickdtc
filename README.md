@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Anamitra Saha, nickname is Rick. Call me whatever you want.
-- ℹ️ Some places I'm known as putdemknock or knockdemput.
+- ℹ️ On hiatus from social media but you can find me on github.
 - 🎂 30/09/2006
 - 😑 Basically a dumbass with no coding knowledge whatsoever doing stupid crap on github.
 
